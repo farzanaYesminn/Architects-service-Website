@@ -1,1 +1,1 @@
-# G3 architets
+# G3 architects
